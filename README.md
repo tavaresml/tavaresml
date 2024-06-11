@@ -1,4 +1,4 @@
-## Hi there 👋
+## Oi meus amores, sou Maria Luiza, sou gente boa, mas não gosto de fazer amizades  👋
 
 <!--
 **tavaresml/tavaresml** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
